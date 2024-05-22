@@ -4,7 +4,7 @@
   Soongsil University🏫<br/>
   I served as a driver in Seoul Airbase✈️
 
-  My journey has just begun! (2024/05/22)
+  My journey has just begun! (2024/05/22)<br/>
   I am the creator of this world.
 </p>
 
