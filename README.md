@@ -1,7 +1,6 @@
 <h1><img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="30"/> Hi!</h1>
 
 <p>
-  Soongsil University🏫<br/>
   I served as a driver in Seoul Airbase✈️
 
   My journey has just begun! (2024/05/22)<br/>
